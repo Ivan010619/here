@@ -1,5 +1,11 @@
-https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter-55%20(3).CBZ
-https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2056.cbz
-https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2057.cbz
-https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2058.cbz
-https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2059.cbz
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter-60%20(4).CBZ
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter-61-Fixed.CBZ
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter-62%20(2).CBZ
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter-63.CBZ
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2064.cbz
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2065.cbz
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2066.cbz
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2067.cbz
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2068.cbz
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter-69%20(1).CBZ
+https://github.com/Ivan010619/here/raw/refs/heads/main/Chapter%2070.cbz
